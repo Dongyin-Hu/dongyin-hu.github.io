@@ -19,19 +19,4 @@ Work experience
   
 Skills
 ======
-* Skill 1 迫真吉他
-
-Publications
-======
-  暂无
-  
-Talks
-======
- 暂无
-Teaching
-======
- 暂无
-  
-Service and leadership
-======
-暂无
+迫真吉他
